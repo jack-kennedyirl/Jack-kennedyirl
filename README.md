@@ -4,7 +4,6 @@
  <img width="735" height="417" alt="image" src="https://github.com/user-attachments/assets/be22d3ce-a181-4c11-8c32-ba0dd3f66718" />
 <<<<<<..................>>>>>>>> .
 
-@dummy2face
-awww gayyyyy, ily
+
 
 
