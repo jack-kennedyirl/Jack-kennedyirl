@@ -2,7 +2,9 @@
 <img width="1169" height="320" alt="image" src="https://github.com/user-attachments/assets/629b53b6-c9be-4c01-b785-ab7d38868c3b" />
 <img width="1059" height="80" alt="image" src="https://github.com/user-attachments/assets/1ac68bd3-fc03-4f51-9b87-03889410222a" />
  <img width="735" height="417" alt="image" src="https://github.com/user-attachments/assets/be22d3ce-a181-4c11-8c32-ba0dd3f66718" />
-<<<<<<..................>>>>>>>> my oomfs .
-<img width="735" height="551" alt="image" src="https://github.com/user-attachments/assets/5c0e2991-838c-452b-9847-a6e896457ddd" />
+<<<<<<..................>>>>>>>> .
 
-freak circus fans dni <
+@dummy2face
+awww gayyyyy, ily
+
+
