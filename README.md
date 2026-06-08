@@ -8,6 +8,5 @@ I don’t care about doubles. I like inting with doubles.
 
 <img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/f9703f14-df16-4c10-bd25-6c24bf18bd86" />
 
-freak cirus fans dni ,
-
+freak cirus fans dniuid.
 
