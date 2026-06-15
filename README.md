@@ -10,4 +10,6 @@ I don’t care about doubles. I like inting with doubles.
 <img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/f9703f14-df16-4c10-bd25-6c24bf18bd86" />
 
 freak cirus fans dniuid.
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/e0a7db39-0a28-4c24-9723-75a099360ee4" />
+ >>  my main fandoms i focus on is dsaf and ace attorney
 
