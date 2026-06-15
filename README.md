@@ -2,7 +2,7 @@
 > tw , im HAPPILY married
 <img width="1169" height="320" alt="image" src="https://github.com/user-attachments/assets/629b53b6-c9be-4c01-b785-ab7d38868c3b" />
  <img width="482" height="56" alt="image" src="https://github.com/user-attachments/assets/c88c829f-ed97-4141-bb8a-1904cc03a7f5" />
- <img width="4923" height="4823" alt="image" src="https://github.com/user-attachments/assets/988ea71d-d156-4921-88b9-48310cc7e865" />
+ <img width="2048" height="1583" alt="image" src="https://github.com/user-attachments/assets/fc28a435-d094-4513-807b-97a613bd0e3d" />
 
 
 I don’t care about doubles. I like inting with doubles. 
