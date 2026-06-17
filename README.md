@@ -12,4 +12,6 @@ I don’t care about doubles. I like inting with doubles.
 freak cirus fans dniuid.
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/e0a7db39-0a28-4c24-9723-75a099360ee4" />
  >>  my main fandoms i focus on is dsaf and ace attorney
+> > roblox args and myths
+> > and deltarune
 
