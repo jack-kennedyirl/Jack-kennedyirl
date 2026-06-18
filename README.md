@@ -16,4 +16,4 @@ freak cirus fans dniuid.
 > > and deltarune
 
  <img width="482" height="56" alt="image" src="https://github.com/user-attachments/assets/c88c829f-ed97-4141-bb8a-1904cc03a7f5" />
-in the back doing bullshit
+in the back doing bullshit. I am STILL. SLEEPLESS DAVE 1RLEEVR SINCE 2021.
