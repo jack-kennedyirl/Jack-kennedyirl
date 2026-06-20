@@ -13,7 +13,7 @@ freak cirus fans dniuid.
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/e0a7db39-0a28-4c24-9723-75a099360ee4" />
  >>  my main fandoms i focus on is dsaf and ace attorney
 > > roblox args and myths
-> > and deltarune + among us <show>
+> > and deltarune + among us <show'
 
  <img width="482" height="56" alt="image" src="https://github.com/user-attachments/assets/c88c829f-ed97-4141-bb8a-1904cc03a7f5" />
 *in the back doing bullshit. I am STILL. SLEEPLESS DAVE IRL. EVER SINCE 2021. REMBET THAT I AM THE REAL ONE EVER SINCE 2021 FEB 14* !!!1!1!!1!!<<<<
