@@ -4,7 +4,9 @@ lmk if i did anything wrong.
 <img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/f2f341d6-80cf-43ec-967d-159eed508763" />
 > tw , im HAPPILY married
  <img width="4923" height="4823" alt="image" src="https://github.com/user-attachments/assets/fc7df7d9-6170-4885-9926-927db9154036" />
-<slimespecter>
+<sub>slimespecter</
+
+..
 <img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/edcf6a33-8bbf-47e7-aa29-21e6da3d3fd5" />
 
 I don’t care about doubles. I like inting with doubles. 
