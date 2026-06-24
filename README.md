@@ -2,7 +2,6 @@ lmk if i did anything wrong.
 
 "*I'LL KEEP YOU MY [[Dirty Little Secret]]*"
 <img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/f2f341d6-80cf-43ec-967d-159eed508763" />
-
 > tw , im HAPPILY married
  <img width="4923" height="4823" alt="image" src="https://github.com/user-attachments/assets/fc7df7d9-6170-4885-9926-927db9154036" />
 <img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/edcf6a33-8bbf-47e7-aa29-21e6da3d3fd5" />
@@ -18,14 +17,7 @@ freak cirus fans dniuid.
 > > and deltarune + among us <show'
 
  <img width="482" height="56" alt="image" src="https://github.com/user-attachments/assets/c88c829f-ed97-4141-bb8a-1904cc03a7f5" />
-*in the back doing bullshit. I am STILL. SLEEPLESS DAVE IRL. EVER SINCE 2021. REMBET THAT I AM THE REAL ONE EVER SINCE 2021 FEB 14* !!!1!1!!1!!<<<<
->
->
->
->
->
->
->
+i just made some bullllll shitttttttt
 <img width="680" height="620" alt="image" src="https://github.com/user-attachments/assets/ed2ccde8-b692-46d2-8410-68e3d05d1886" />
 
 >
