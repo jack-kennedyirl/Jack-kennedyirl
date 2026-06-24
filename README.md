@@ -1,14 +1,11 @@
 lmk if i did anything wrong.
 
 "*I'LL KEEP YOU MY [[Dirty Little Secret]]*"
-<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/f9703f14-df16-4c10-bd25-6c24bf18bd86" />
+<img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/f2f341d6-80cf-43ec-967d-159eed508763" />
+
 > tw , im HAPPILY married
- 
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/35d9083c-7cd7-4779-b93c-ad90df68f583" />
-
- <img width="482" height="56" alt="image" src="https://github.com/user-attachments/assets/c88c829f-ed97-4141-bb8a-1904cc03a7f5" />
- <img width="2048" height="1583" alt="image" src="https://github.com/user-attachments/assets/fc28a435-d094-4513-807b-97a613bd0e3d" />
-
+ <img width="4923" height="4823" alt="image" src="https://github.com/user-attachments/assets/fc7df7d9-6170-4885-9926-927db9154036" />
+<img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/edcf6a33-8bbf-47e7-aa29-21e6da3d3fd5" />
 
 I don’t care about doubles. I like inting with doubles. 
 
