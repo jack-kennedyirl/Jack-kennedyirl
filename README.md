@@ -1,6 +1,6 @@
 lmk if i did anything wrong.
 
-"*I'LL KEEP YOU MY [[Dirty Little Secret]] *"
+"*I'LL KEEP YOU MY [[Dirty Little Secret]]*"
 <img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/f9703f14-df16-4c10-bd25-6c24bf18bd86" />
 > tw , im HAPPILY married
 <img width="1169" height="320" alt="image" src="https://github.com/user-attachments/assets/629b53b6-c9be-4c01-b785-ab7d38868c3b" />
