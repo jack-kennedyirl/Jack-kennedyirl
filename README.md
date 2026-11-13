@@ -1,6 +1,6 @@
-<img width="968" height="176" alt="image" src="https://github.com/user-attachments/assets/cfced313-3525-4519-91f6-89dab79ebce7" />
-<img width="1068" height="1068" alt="image" src="https://github.com/user-attachments/assets/62781417-949c-4bc0-b526-c575501f95cd" />
-<img width="968" height="176" alt="image" src="https://github.com/user-attachments/assets/10bb708a-b5b0-4ed8-9821-41e0bf1922d9" />
+<img width="968" height="176" alt="image" src="https://github.com/user-attachments/assets/abc58b64-c1a2-49f7-9b2f-14c2f38c8087" />
 
+<img width="1068" height="1068" alt="image" src="https://github.com/user-attachments/assets/d0231e6c-e82b-4448-b4af-841e4b252dfe" />
+<img width="968" height="176" alt="image" src="https://github.com/user-attachments/assets/f6c80c0e-2f5d-462c-bd9d-b3c912f7e71e" />
 
 wip wip. wip  ✦📺
